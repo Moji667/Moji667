@@ -27,5 +27,5 @@ I am an 19 year old I’m interested in Making game servers such a unturned or C
 
 
 - 📫 How to reach me:
-- Moji#1965
+- Zenith.#0666
 [DISCORD SERVER](https://dsc.gg/legendsnetwork)
